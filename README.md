@@ -6,12 +6,12 @@ Hello! My name is Shalini Mani, and I'm fourteen years old. I know **five** prog
  2. SpyXFamily
  3. Percy Jackson
 
-I also watch anime/donghua! My favorites are Attack On Titan and Link Click (I'm a ***huge*** fan of cliffhangers). I don't watch many movies, but my favorite of all time would be the Baahubali series. However, I love listening and playing music! I've gotten national honors for piano 4 times, and have played recitals. I'll link a playlist of my favorite songs over the summer, though I will warn you, almost all of them are in foreign languages. 
+I also watch anime/donghua! My favorites are Attack On Titan and Link Click (I'm a ***huge*** fan of cliffhangers). I don't watch many movies, but my favoritse of all time would be the Baahubali and NeZha series. However, I love listening and playing music! I've gotten national honors for piano 4 times, and have played recitals. I'll link a playlist of my favorite songs over the summer, though I will warn you, almost all of them are in foreign languages. 
 
 [Spotify Playlist](insert link here)
 
 I'll also add an image collage, since I can't really describe everything about me in one small letter.
 
-! [Spotify Playlist](insert link here)
+![This is a collage that expresses me! ](insert link here)
 
 I'm really looking forward to AP CSP! Have a good day.
