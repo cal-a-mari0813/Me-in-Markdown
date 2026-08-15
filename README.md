@@ -8,7 +8,7 @@ Hello! My name is Shalini Mani, and I'm fourteen years old. I know **five** prog
 
 I also watch anime/donghua! My favorites are Attack On Titan and Link Click (I'm a ***huge*** fan of cliffhangers). I don't watch many movies, but my favorite of all time would be the Baahubali and NeZha series. However, I love listening and playing music! I've gotten national honors for piano 4 times, and have played recitals. I'll link a playlist of my favorite songs over the summer, though I will warn you, almost all of them are in foreign languages. 
 
-[Spotify Playlist](insert link here)
+[Spotify Playlist](https://open.spotify.com/playlist/7w0u8wYTZtBcqx3hTqbZHs)
 
 I'll also add an image collage, since I can't really describe everything about me in one small letter (even if I do suck at making collages.
 
