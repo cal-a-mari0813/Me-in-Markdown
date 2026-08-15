@@ -12,6 +12,6 @@ I also watch anime/donghua! My favorites are Attack On Titan and Link Click (I'm
 
 I'll also add an image collage, since I can't really describe everything about me in one small letter (even if I do suck at making collages.
 
-! [This is a collage that expresses me!](https://canva.link/hk2gyggcc6i97rx)
+![This is a collage that expresses me!](https://ibb.co/Lh6FmTxS)
 
 I'm really looking forward to AP CSP! Have a good day.
