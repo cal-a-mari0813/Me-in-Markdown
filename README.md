@@ -10,7 +10,7 @@ I also watch anime/donghua! My favorites are Attack On Titan and Link Click (I'm
 
 [Spotify Playlist! These were some songs I had on repeat during the summer](https://open.spotify.com/playlist/7w0u8wYTZtBcqx3hTqbZHs)
 
-I'll also add an image collage, since I can't really describe everything about me in one small letter (even if I do suck at making collages.
+I'll also add an image collage, since I can't really describe everything about me in one small letter.
 
 ![This is a collage that expresses me!](https://github.com/cal-a-mari0813/Me-in-Markdown/blob/main/Collage.jpg)
 
