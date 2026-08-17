@@ -9,10 +9,10 @@ Hello! My name is Shalini Mani, and I'm fourteen years old. I know **five** prog
  | SpyXFamily| I really enjoyed the suspense and the family relationship between the three characters, even if they weren't a "real" family. Every time I thought the book was about to get boring, the author always managed to get my attention again.| 9.5/10|
  | Witch Hat Atelier| I always love reading fantasy books about witches. Qifrey is just such an unforgettable character, and his relationship with Olruggio and his apprentices was so heartwarming! While it did feel like some of the chapters were a little irrelevant, it was still a fun read.|9.2/10|
 
-# Hobbies/Things I enjoy
+# Hobbies/Things I Enjoy
 I also watch anime/donghua! My favorites are Attack On Titan and Link Click (I'm a ***huge*** fan of cliffhangers). I don't watch many movies, but my favorite of all time would be the Baahubali and NeZha series. However, I love listening and playing music! I've gotten national honors for piano 4 times, and have played recitals. I'll link a playlist of my favorite songs over the summer, though I will warn you, almost all of them are in foreign languages. 
 
-# Extra links to get to know me better 
+# Extra Links To Get To Know Me Better 
 [Spotify Playlist! These were some songs I had on repeat during the summer](https://open.spotify.com/playlist/7w0u8wYTZtBcqx3hTqbZHs)
 
 I'll also add an image collage, since I can't really describe everything about me in one small letter.
