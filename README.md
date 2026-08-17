@@ -3,7 +3,8 @@
 ## About Me
 Hello! My name is Shalini Mani, and I'm fourteen years old. I know **five** programming languages (C, ROBOTC, C#, C++, Python, and block coding, though I am not sure if that counts), and I love robotics or anything that's associated with programming. I have also written and published a short story at 7 years old, but it is quite embarrassing, and am a **JLEC** shortlist member. Over the summer, I also volunteered at the Chatsworth library and got into manga! In my free time, I love reading or drawing, with my favorite books being (ordered  by how much I love them):
 
- | Favorite Books| Reason I enjoy them|
+ | Favorite Books | Reason I enjoy them|
+ |----------------|--------------------|
  | The Song of Achilles| I knew the sad ending was coming, and yet I still shed tears😭 The author built Achilles and Patroclus' relationship so well, it truly hurt.|
  | SpyXFamily| I really enjoyed the suspense, even if they weren't a "real" family. Every time I thought the book was about to get boring, the author always managed to get my attention again|
  | Witch Hat Atelier| I always love reading fantasy books about witches, and Qifrey is just such an unforgettable character, and his relationship with Olruggio and his apprentices was so heartwarming|
